@@ -6,7 +6,7 @@
 #### 6
 #### 7 Eliot is super cool
 #### 8
-#### 9 Github is really good
+#### 9 Github is really awsome
 #### 10
 #### 11
 #### 12
